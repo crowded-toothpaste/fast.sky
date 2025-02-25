@@ -4,6 +4,8 @@ other rewards. While I don\'t have access to current promo codes, I can
 share some FAQs about Bingo Blitz promo codes to help guide you. Bingo
 Blitz Promo Code FAQs
 
+Get Link = https://sites.google.com/view/bingo-blitz-100-free-credits/
+
 Where can I find Bingo Blitz promo codes? Official Social Media: Bingo
 Blitz often posts promo codes on their official Facebook, Instagram, or
 Twitter pages. Emails & Newsletters: If you're subscribed to their
