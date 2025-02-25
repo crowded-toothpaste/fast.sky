@@ -6,6 +6,8 @@ progress. It\'s available on both iOS and Android devices, and is
 designed to be a fun, quick, and strategic way to enjoy Monopoly-style
 gameplay in a mobile format.
 
+Get Link = https://sites.google.com/view/getmonopolygofreedicecodes/
+
 Here's a breakdown of the Monopoly Go: Dice Rolls game: Game Overview
 
 Gameplay Mechanics: Players roll dice to move around a virtual game
