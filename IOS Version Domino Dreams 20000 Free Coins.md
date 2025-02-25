@@ -5,6 +5,8 @@ classic domino effects in an enjoyable format. It's available on both
 iOS and Android platforms, and players can earn rewards, including
 coins, by playing through different levels and challenges.
 
+Get Link - https://graph.org/Get-Domino-Dreams-Free-Coins-02-24
+
 Here's a breakdown of the Domino Dreams game, including how to earn
 coins and other important details: Game Overview
 
