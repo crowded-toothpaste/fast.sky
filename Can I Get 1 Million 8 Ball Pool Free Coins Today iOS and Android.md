@@ -5,6 +5,8 @@ competitive game where you play against other players from around the
 world, aiming to be the first to sink all of your balls (either solids
 or stripes) and then pocket the 8-ball to win.
 
+Learn More - https://graph.org/Can-I-Get-1-Million-8-Ball-Pool-Free-Coins-02-25
+
 Here's a basic overview of the game: Game Modes
 
 1v1 Matches: You compete against a single opponent in a regular game of
